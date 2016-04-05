@@ -9,5 +9,6 @@ LIVE ENTERTAINMENT
 - Dennis will play the "Electric Kumbaya" and dance in a panda suit with his Dad
 
 FOOD ITEMS
-- Please bring homemade food from your family's secret formulas
+- Please bring homemade food from your family's secret formulas 
+- ravioli ravioli give me the formioli
 
